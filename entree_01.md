@@ -10,3 +10,6 @@ Expliquer en 5 à 10 lignes ce qui vous intéresse en TIM. Parlez de ce qui vous
 
 
 
+Bonjour monsieur, la raison pour laquelle j'ai choisi la Technique d'integration multimedia, c`est simplement parce que je suis passioné. Le fait de pouvoir gagner de l'argent avec ma passion me semble comme une tres bonne option de carriere. Effecivement, je pense que mon future est dans tout ce que ce programme offre. Le codage par exemple. Ce n'est pas la chose qui m'interesse le plus, mais pour le future, c'est casiment necessaire. Les domaines artistiques sont particulierement interessant. Ce programe nous offre les outils necessaire pour performer et creer de l'art a nos plus hautes capacité. Sa nous donne: de la conception, des moyens, du savoir, de l'expérience, du materiel et des habiletés. Ce quil me manque pour etre ma meilleure version de moi meme, c'est quelquechose qui ressemble au multitudes de competances acquéries dans ce programe. Je pense pouvoir me développer au plus haut de mes attentes et haut dela.
+
+
