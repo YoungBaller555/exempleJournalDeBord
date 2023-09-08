@@ -7,17 +7,17 @@ Exemple:
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
 ### [freestyle 2]https://www.youtube.com/watch?v=jao-W5tJkYo
-Expliquer pourquoi vous avez choisi ce lien. 
+L'oevre *freestyle* m'interresse particulierement. On voit les effects compliques 
 
-### Lien 2 
+### https://www.youtube.com/watch?v=BuNBLjJzRoo
 Expliquer pourquoi vous avez choisi ce lien.
 
-### Lien 3 
+### https://www.youtube.com/watch?v=UpMTfPVG8Cs 
 Expliquer pourquoi vous avez choisi ce lien.  
 
-### Lien 4 
+### https://www.youtube.com/watch?v=-DESlOUHfnI
 Expliquer pourquoi vous avez choisi ce lien. 
 
-### Lien 5 
+### https://www.youtube.com/watch?v=ivCY3Ec4iaU
 Expliquer pourquoi vous avez choisi ce lien. 
 
