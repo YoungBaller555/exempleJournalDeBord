@@ -7,8 +7,8 @@ Le métier d'ingenieur de son m'interesse particulierement en raison des conaiss
 ### Emploi 2 - producer
 Un producer est un metier qui regroupe plusieurs aspects creatifs et plusieurs connaissances dans diverses domaines. Un exemple de producer du plus haut niveau serait Metro Boomin ou DJ Snake. Ces gens travaillent a leur propre egars et c'est ce qui m'interpelle fortement avec cet emploi. Comme en haut, on traaille dans des studios, a la maison ou dans un etablisement. L"objectif du metier est simple. Interagir avec un artiste affin de cree la meilleur piece musicale possible selon le budget et les conaissances a disposition. En tant que beatmaker, directeur creatif et lyriciste, les producers ce servent de leurs vastes connaissances pour reussir.
 
-### Emploi 3 - Identification
-4 à 5 lignes 
+### Emploi 3 - animateur model 3d
+En multimedia, on apprendra, dans le future, a realiser des vrai models 3d. Evidement, il y a du cash a faire avec sa! Le metier d'animateur me semble vraiment bien en raison du fait que sa ma toujour passioner. On travaille dans un studio d'animation ou a la maison. On peux travailler pour nous meme ou pour une compagnie. Le metier requiere une connaissance et un savoir faire ardu, mais je suis sur de les avoir. Evidement, il faut bien savir faire et animer des models 3d diverses et avoir la capacite de s'adapter et a entreprendre plusieurs projets. C'est justement ceci qui fait en sorte que ce n'est pas mon premier choix. J'aime bien l'animation, mais pas plus que la musique.
 
 ### Emploi 4 - Identification
 4 à 5 lignes
