@@ -10,10 +10,10 @@ Un producer est un metier qui regroupe plusieurs aspects creatifs et plusieurs c
 ### Emploi 3 - animateur model 3d
 En multimedia, on apprendra, dans le future, a realiser des vrai models 3d. Evidement, il y a du cash a faire avec sa! Le metier d'animateur me semble vraiment bien en raison du fait que sa ma toujour passioner. On travaille dans un studio d'animation ou a la maison. On peux travailler pour nous meme ou pour une compagnie. Le metier requiere une connaissance et un savoir faire ardu, mais je suis sur de les avoir. Evidement, il faut bien savir faire et animer des models 3d diverses et avoir la capacite de s'adapter et a entreprendre plusieurs projets. C'est justement ceci qui fait en sorte que ce n'est pas mon premier choix. J'aime bien l'animation, mais pas plus que la musique.
 
-### Emploi 4 - Identification
-4 à 5 lignes
+### Emploi 4 - animateur
+Depuis tout petit, je voit des anime, cartoons et jeux videos avec des animations 2d incroyables. Il y a quelquchose de special a pouvir donner vie a des images. Le metier d'animateur a l'air attirant en raison, encore une foi, de la libertee creative qui est offerte. Evidement ,il faut dessiner ce qu'ils nous demande de dessiner, mais je trouve que le fait de gagner de l'argent en animant des dessins, c'est genial. Il faut des talents et des connaissance en tant que dessinateur et animateur. Ce qui m'atire moin, c'est le fait que ce n'est [as le metier numero 1 ue je souhaite, mais cela ne veut pas dire que je ne le ferais pas.
 
-### Emploi 5 - Identification
-4 à 5 lignes
+### Emploi 5 - Entrepreneur
+Le meilleur de tous. Avec les connaissances acquerise en multimedia, on sera asser diversifies pour pouvoir utiliser ces savoir pour travailler a notre propre egar et ainsi, vivre une meilleure vie. On travaille n'importe ou( studio ou maison : au choix ) car il n'y a pas d'employeur, seulement des clients. Pour les competances a detenir, c'est vraiment une question de quelle direction on prend sur le marcher libre, mais la programation, le photoshop, le mixing ect. sont toutes des conaissances qui peuvent subvenir au besoins du client -INDIVIDUELLEMENT-. C'est a dire, presque chaque cours du programe m'apprend un "skill" qui peux, a lui tout seul, me faire vivre. Je suis emmerveiller.
 
 
