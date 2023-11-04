@@ -3,9 +3,11 @@
 
 ### Points forts de la préparation à l'examen
 Nommer deux points forts de votre préparation à l'examen. 
+Votre revision a ete tres utile et essencielle. Sans elle Xavier n'aurait pas fait le Document et je 'aurais pas apprit les notions de base. Le document de Xavier m'a aider a reviser et a etre sur que les competances sont apprises et le niveau desirer est atteint.
 
 ### Points à améliorer
 Nommer deux points à améliorer de votre préparation à l'examen ainsi qu'une piste de solution pour les prochains examens. 
+Les cables serait les points a ameliorer. Je connais la grande majoriter des visuels et des noms connus et utilises quotidienement, mais ceux plus obscures sont vraiment obscures. je ne connais ni le nom ni leurs apparence.
 
 ### Gestion du temps
 Comment avez-vous géré votre temps lors de l'examen?
